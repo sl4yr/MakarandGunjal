@@ -5,7 +5,7 @@
  
 - 🌱 I’m currently learning **API automation**
  
-- 📫 How to reach me **hiteshpatiyal2566@gmail.com**
+- 📫 How to reach me **makgunjal@gmail.com**
  
 - 📄 Know about my experiences [https://bold.pro/my/hitesh-patiyal-240608192237](https://bold.pro/my/hitesh-patiyal-240608192237)
  
